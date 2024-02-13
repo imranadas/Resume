@@ -1,6 +1,8 @@
 ![](Aspose.Words.a9d52de5-141d-4652-b5cf-26d1a6302cf9.001.jpeg) \
-**Rana Das** 22B0738**Civil Engineering B.Tech**
-Indian Institute of Technology Bombay
+**Rana Das** \
+22B0738 \
+**Civil Engineering \
+B.Tech** Indian Institute of Technology Bombay 
 
 Pursuing a **Major degree** of B.Tech in **Civil Engineering** at *Department of Civil Engineering, IITB* Scholastic Achievements ![](Aspose.Words.a9d52de5-141d-4652-b5cf-26d1a6302cf9.002.png)
 
